@@ -1,4 +1,4 @@
-![Buck Shot Roulette God Mod Banner](<img width="1905" height="1086" alt="banner" src="https://github.com/user-attachments/assets/09b9bb08-bffb-4636-84cb-6ee10dda638a" />)
+![Buck Shot Roulette God Mod Banner](https://github.com/user-attachments/assets/09b9bb08-bffb-4636-84cb-6ee10dda638a)
 
 # 🎯 Buckshot Roulette – God Mod
 
